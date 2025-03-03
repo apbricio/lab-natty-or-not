@@ -1,3 +1,7 @@
+
+
+https://github.com/user-attachments/assets/604c5cd4-a09f-425c-9527-3444f6ce5783
+
 # Natural ou Fake Natty? Como Vencer na Era das IAs Generativas
 
 ## 🚀 Introdução
